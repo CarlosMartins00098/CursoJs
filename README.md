@@ -1,0 +1,1 @@
+este é o exercicio do curso em vídeo do Gustavo Guanabara
